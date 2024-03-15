@@ -21,3 +21,4 @@ DVS in P
 not good trend
 I am pretty
 Add medicine
+PC ready, and send back
